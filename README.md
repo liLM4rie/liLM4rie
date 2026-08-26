@@ -3,4 +3,3 @@
 ⡞⠳⣄⣀⣠⠞⢷ 𝜗ৎ
 <img width="1199" height="571" alt="image" src="https://github.com/user-attachments/assets/3610bd66-9ac5-4502-9022-1afb908e11fa" />
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⠀⠀⠀⠀⠀⠀ִ
-**liLM4rie/liLM4rie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
